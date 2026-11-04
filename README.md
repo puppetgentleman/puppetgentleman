@@ -1,16 +1,15 @@
-## Hi there 👋
+##  [ ☆](https://github.com/evilmustdie)  hai. usually in character ♡ ♡
 
-<!--
-**thebabygentleman/thebabygentleman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> <b> little friend. i like 2 write and sit in chairs. the youngest person ever </b></p> 
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=thebabygentleman&color=841b15&style=flat-square&label=you_are_the_first_and_so_niche_♡_" />
+</p> 
 
-Here are some ideas to get you started:
+  <p align="center">
+<img src="https://i.pinimg.com/1200x/03/c5/67/03c567a4c9c93f58dcdce7c37a73db48.jpg" width="500" height="600"/> 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> be my friend. pls help me find my mama </p> 
+
+  <p align="center"> 
+<img src="https://64.media.tumblr.com/d21905f1d05843aeb0e5122acf2842df/e7777a201e21992c-cd/s250x400/097ae7308779ffa18f9027e56b9d48a190e77481.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/60498ea0f86e771aa328a8aaa06e0ce8/68d9ff67e04dc9ac-41/s250x400/30e27b50497bfa6a36cb0c6568771783cf195ded.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/611a738714607e288410edfbe66ca217/e7777a201e21992c-b8/s250x400/67c633f91331f9c1c87fe7f4cc8a01bc6a3df470.gifv" width="170" height="30"/>
+  </p> 
