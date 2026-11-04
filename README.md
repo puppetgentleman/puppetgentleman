@@ -6,7 +6,7 @@
 </p> 
 
   <p align="center">
-<img src="https://i.pinimg.com/1200x/03/c5/67/03c567a4c9c93f58dcdce7c37a73db48.jpg" width="500" height="600"/> 
+<img src="https://64.media.tumblr.com/447142be6b8a146df3f549c7954b4beb/0c84f1fe79c9a302-a0/s540x810/bcc37b90fe1a4459a05368d53860b105d2434b23.pnj" width="800" height="350"/> 
 
 <p align="center"> be my friend. pls help me find my mama </p> 
 
