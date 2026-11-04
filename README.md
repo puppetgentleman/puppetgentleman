@@ -2,7 +2,7 @@
 
 <p align="center"> <b> little friend. i like 2 write and sit in chairs. the youngest person ever </b></p> 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=thebabygentleman&color=841b15&style=flat-square&label=you_are_the_first_and_so_niche_♡_" />
+<img src="https://komarev.com/ghpvc/?username=puppetgentleman&color=841b15&style=flat-square&label=you_are_the_first_and_so_niche_♡_" />
 </p> 
 
   <p align="center">
